@@ -1,3 +1,3 @@
 ### TSONNEN
 
-Hi there, I'm Tim. I work at Chief Architect Software as a Software Test Engineer.
+Hi there, I'm Tim. I currently work as a Software Test Engineer and am devoted to continuing to learn.
