@@ -1,3 +1,3 @@
 ### TSONNEN
 
-Hi there, I'm Tim. I currently work as a Software Test Engineer and am devoted to continuing to learn.
+🚀 Software Engineer | Passionate about building efficient, scalable solutions | Always learning and evolving my craft | Focused on clean code, automation, and best practices | Open to collaborating and sharing knowledge
